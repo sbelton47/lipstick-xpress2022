@@ -1,1 +1,0 @@
-# lipstick-xpress2022
